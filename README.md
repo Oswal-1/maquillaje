@@ -1,2 +1,0 @@
-# maquillaje
-trabajo
